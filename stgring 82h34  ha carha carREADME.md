@@ -1,7 +1,28 @@
-vcfeat oi23i o4ku2 io3234 
+create 234234234 32vcfeat oi23i o4ku2 io3234  stroe io o2 3noi4io234 
+23 4
+ 2
+ 3234 meeto i234 nio 2no3i4noi  2noi34 
+   23
+   44 2
+   3 234 meetoi2 3i4 io 2io34ino  o2i34o ini 234
+
+   ha cipp2 34nip no2 oin3no i234 or oin234 ioo in2n34 damag io3 nio nio234
+   j2h
+   23
+   hh stroign io2 oni34n ioino  2345
+   23
+   h424 org 2
+   3$ 
+   234       copp oin2 3n4io noi23no i4n oi23 ion4 noi23noi4n oi nio234 
+
+   ha
+   h
+   ah cop 2op34 no onnio  ino234 iu23i4 oi 2 i io234 
+   ha
+   h meeti23 ni4 nio23oinino234 cop aio o2in34inooin 23n ioio 234 
 
 ha
-ha
+ha danger oi2 o34 oi noi234 
 hah
 a
 ha girl 234 oio io ion2 nio34 nooi23o oi ioion oi2n3n4  234 
