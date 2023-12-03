@@ -1,4 +1,12 @@
-2o4
+2o4 toucn 2oi34 nio23oinoin 234
+ h 234
+
+  234
+   2
+    34 23
+     4 
+     23 
+     4234hamemr oi2 3io234
 
 - 👋 Hi, I’m @eduffield9
 - 👀 I’m interested in ...
