@@ -1,3 +1,5 @@
+2o4
+
 - 👋 Hi, I’m @eduffield9
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... oiu2 3i4ponp ion2op niopn i2o34 
@@ -5,7 +7,8 @@
 - 📫 How to reach me ...
 
 - ha
-- ha sesion23 324
+- ha sesion23 324![ EW 360875794_273277](https://github.com/eduffield9/eduffield9/assets/152788646/1e002e8d-cf0d-41b3-950c-5cf587f83aad)
+
 - h
 - ha
 - 23
@@ -21,7 +24,7 @@ jwjwjwjj3 45
  3
   45 
   34
-  5 
+  5  opi 2io34 o2 iop3 noi2l34 o234io io2 34 
   34 
   5
   34 
